@@ -1,3 +1,0 @@
-
-
-[Interaktiver Guide zu F]
